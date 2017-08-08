@@ -1,7 +1,8 @@
 # Pantalaimon API v3.0
-===
 
 Care and Feeding for Pantalaimon aka 'Pan'
+
+![Imgur](http://i.imgur.com/i9igpKf.png "Logo Title Text 1")
 
 ![Pantalaimon] (http://i.imgur.com/i9igpKf.png "Pantalaimon Profile Image")
 
