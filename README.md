@@ -32,12 +32,12 @@ Care and Feeding for Pantalaimon aka 'Pan'
 
 ## Feeding Directions
 ### The Feeder
-* In the big (east) bedroom underneath the bed near the door is the cat’s automated feeder it looks like this: 
-![Pantalaimon](http://i.imgur.com/SceQtmF.jpg "Pantalaimon Profile Image")
+* In the big (east) bedroom underneath the bed near the door is the cat’s automated feeder (shown below)
 * The feeder turns twice a day at 8:23am and 8:23pm (ish)
+* ![Pantalaimon](http://i.imgur.com/SceQtmF.jpg "Pantalaimon Profile Image")
 
 ### Filling the Feeder
-* The food is on the bottom of the yellowish wood shelf opposite the door, IN the big bedroom. It’s in a 1ft high clear Tupperware. ![Pantalaimon](http://i.imgur.com/TAYkQFS.jpg "Pantalaimon Profile Image").
+* The food is on the bottom of the yellowish wood shelf opposite the door, IN the big bedroom. It’s in a 1ft high clear Tupperware. ![Pantalaimon](http://i.imgur.com/TAYkQFS.jpg "Pantalaimon Profile Image")
 * Pan WILL break into the food if the food-bag-container isn’t closed all the way or anywhere but on the shelf.
 * open the feeder and fill up each slot (except the currently exposed one) with 1/4 cup of kitty food. ![Pantalaimon](http://i.imgur.com/adeb4nO.jpg "Pantalaimon Profile Image")
 * the scoop for the kitty food is in the bag of food.
@@ -63,7 +63,7 @@ Care and Feeding for Pantalaimon aka 'Pan'
 
 ## Cat Toys
 
-Pan's favorite toy right now is "Disrespectful Fish" it's located on the top of the black shelf near the opening of the big bedroom.![Pantalaimon] (http://i.imgur.com/cpIUjvf.jpg "Pantalaimon Profile Image") 
+Pan's favorite toy right now is "Disrespectful Fish" it's located on the top of the black shelf near the opening of the big bedroom.![Pantalaimon](http://i.imgur.com/cpIUjvf.jpg "Pantalaimon Profile Image") 
 
 ## Catbox
 * The cat box is located on the far north east side of the apartment in the corner.  If you can't find the cat, that's probably where he is.
